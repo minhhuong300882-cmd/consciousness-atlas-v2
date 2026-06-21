@@ -1,1 +1,0 @@
-# consciousness-atlas-v2
